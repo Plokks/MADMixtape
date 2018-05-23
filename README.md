@@ -4,3 +4,4 @@
 - ACDC - It’s a long way to the top, if you wanna rock n roll
 - Toto - Africa
 - The Streets - Fit But You Know It
+- The Reign of Kindo - The Moments in Between
