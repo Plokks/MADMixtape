@@ -17,3 +17,4 @@
 - Backstreet Boys - I Want it that Way
 - DJ Bobo - Freedom
 - Chesney Hawkes - The One And Only
+- Andrea Bocelli & Sarah Brightman - Time to Say Goodbye
