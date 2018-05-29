@@ -9,3 +9,4 @@
 - No Angels - Daylight
 - Uncle Kracker - Follow me
 - Roxette - Joyride
+- Spice Girls - Wannabe
