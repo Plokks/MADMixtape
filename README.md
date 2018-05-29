@@ -16,3 +16,4 @@
 - Avril Lavigne - Sk8er Boi
 - Backstreet Boys - I Want it that Way
 - DJ Bobo - Freedom
+- Chesney Hawkes - The One And Only
