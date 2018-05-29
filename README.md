@@ -11,3 +11,5 @@
 - Roxette - Joyride
 - Spice Girls - Wannabe
 - Blümchen - Boomerang
+- Dolly Parton – Jolene
+- Bruno Mars - The Lazy Song
