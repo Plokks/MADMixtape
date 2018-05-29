@@ -7,3 +7,4 @@
 - The Reign of Kindo - The Moments in Between
 - Queen – Don’t stop me now
 - No Angels - Daylight
+- Uncle Kracker - Follow me
