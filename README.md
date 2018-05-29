@@ -8,3 +8,4 @@
 - Queen – Don’t stop me now
 - No Angels - Daylight
 - Uncle Kracker - Follow me
+- Roxette - Joyride
